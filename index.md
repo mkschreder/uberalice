@@ -1,37 +1,6 @@
-## Welcome to GitHub Pages
+## Alice
 
-You can use the [editor on GitHub](https://github.com/mkschreder/uberalice/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+This is a place where I train my belgian malinois puppy and distill the knowledge that I gain about this breed as I go through the training process with this puppy from 9 weeks of age. At the moment I have not decided on the structure of this website or whether it will contain a lot of information at all, but as a start I'm putting this index page here which I will update as I fill this repository with more information.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Blah blah blah.. if you read this then you are probably viewing too far back in the git history :-)
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/mkschreder/uberalice/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
