@@ -34,4 +34,4 @@ Went for a long family walk in the woods where alice would walk short periods an
 * Going into lake with freezing cold 6 degrees water up to neck and following me out to the beach to then be dried and tuck into a warm cloth. 
 * Meeting many different kinds of dogs (alice no longer grawls at all larger breeds, only some)
 * Continue going by bus, train and among lots of people. 
-* Staying in a cage by herself for a little longer (with regular check ups. She mostly sleeps in the car cage)
+* Staying in a cage by herself for a 5 hours (with check ups every 2h. She mostly sleeps in the car cage)
