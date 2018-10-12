@@ -1,5 +1,7 @@
 # 12 weeks old malinois puppy
 
+[![Video from 11 to 12 weeks](https://img.youtube.com/vi/cLk5vRJnn1Q/0.jpg)](https://www.youtube.com/watch?v=cLk5vRJnn1Q)
+
 This week I'll be focusing on basic commands done from motion and in different environments. The last few weeks of socialization have been extremely rewarding - Alice is both completely calm around other dogs (even ones that bark), she is able to climb on transparent stairs with motivation and without fear, she can ride the train and bus without shaking and she can be very social around other people. All of this is very good for the next stages in my training of her because it now makes it possible to focus on command training in all of these various situations without restricting oneself to some specific setting.
 
 She weighs now 9.5kg and has a better diet with larger marrow bones as complement to her ground raw diet. She also eats verious types of grass outside, carrots and cucumbers. However marrow bones are a major addition and she is only starting to be able to eat them with her teeth. It is a good way to train her jaw muscles and also for the adult teeth that should start coming pretty soon. 
