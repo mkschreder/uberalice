@@ -1,6 +1,6 @@
 # 11 weeks old (12th week)
 
-Video from last weeks highlights: 
+Highlights from the week that passed: 
 
 [![Belgian malinois 10 weeks old](https://img.youtube.com/vi/KISomWOcrW4/0.jpg)](https://www.youtube.com/watch?v=KISomWOcrW4)
 
