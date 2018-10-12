@@ -1,4 +1,9 @@
 # 11 weeks old (12th week)
+
+Video from last weeks highlights: 
+
+[![Belgian malinois 10 weeks old](https://img.youtube.com/vi/KISomWOcrW4/0.jpg)](https://www.youtube.com/watch?v=KISomWOcrW4)
+
 This week would include second round of vaccinations and more focus on mental training. However I would still like to stray away from any kind of plan and just do non-resistance training - ie whatever the dog wants to do we train and learn how to do better. For example seeking has not been very motivational activity. Chasing a ball was. So fetching can be expanded more. Also jumping and running was quite enjoyed but in small quantities. Also the broken tooth needs some care and a watch for any kind of infection. 
 
 At this point the dog weights slightly over 8kg and is pretty much home clean. I can even sometimes miss my alarm at night and then search for any accidents and I can not find any. I then take her out and she does her stuff in the woods. Still more training is good but I think the focus needs to shift a little to other things. 
@@ -8,6 +13,9 @@ In terms of experiences, water and escalators (as well as transparent stairways)
 A very good book I highly recommend is the "[Schutzhund Obedience: Training in Drive](https://www.amazon.com/Schutzhund-Obedience-Training-Sheila-Booth/dp/0966302028/ref=sr_1_3?ie=UTF8&qid=1539074505&sr=8-3&keywords=schutzhund&dpID=21hSYmA0e2L&preST=_BO1,204,203,200_QL70_&dpSrc=srch)". This book is filled with good advice every sentence of the way. A booked truly packed with good advice. Get it on kindle (the link is not even any kind of affiliate link at this point. It would take me too much time to sort out the affiliate stuff and right now I would rather keep writing this post)
 
 # Playing chase in the woods
+
+[![Belgian malinois chase game](https://img.youtube.com/vi/Ty3BHS_x648/0.jpg)](https://www.youtube.com/watch?v=Ty3BHS_x648)
+
 One of the best games I play with my malinois puppy is the game of chase in the woods. This game activates the puppy both physically and mentally and is really fun to play. I call it "run through the woods like an idiot and let your Malinois chase you". I pick a track ahead of time, then go the starting line and run as fast as I can. At 11 weeks a malinois is never too far behind and I get fatigued pretty quickly when trying to run fast through the rocky terrain. It is a good workout for both me and the malinois puppy. For her it is not just a physical workout - it is a mental workout as well because in certain types of terrain she can not see me and has to find a way herself. Also sometimes she can not go the same way I go and has to find another way that she can take in order to find me. 
 
 # Meeting other dogs: lots of them
