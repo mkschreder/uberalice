@@ -6,3 +6,5 @@ This week training more on stay and wait. Specially wait is something that's ext
 
 # Finding treats that the dog likes
 I have finally found the perfect treats. It is a puppy kibble with zero wheat products which frankly smells like cat food but Alice goes absolutely crazy about it. She has tried all kinds of treats and what not. This kibble is the best. It is made for small dogs and the size of the pellets is very small - which is perfect. Precisely what I have been looking for. This is probably individual to the dog but the treats should be of such type that the dog goes absolutely crazy about them. Then training becomes much easier and dog enjoys the training more as well.
+
+(I'm DONE with sausages for this... No more sausages necessary!)
