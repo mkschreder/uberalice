@@ -17,3 +17,10 @@ At this point it has made more sense to let Alice sleep through the night and wa
 
 # Meeting EVERY single dog that wants to meet
 I do not believe in the advice some puppy owners get to only meet 1/10 dogs that pass by or "to only meet nice dogs". I think the dog should meet every single dog - even an angry one from 8 weeks old (ie after first vaccinations are done). The importance of this is just too much to ignore. The dogs that do this from an early age are able to keep calm when another dog comes barking and then stand their ground - which I appreciate a lot. Just like it is important to socialize a child from an early age the same is true for dogs. Letting a puppy meet as many dogs as is possible is the best strategy. However only as long as you associate the meetings with something positive - so it does require from you an ability to keep your dog calm if the other dog goes crazy and then associate your dog being calm with both security and treats. That's in my view is the perfect way to do it. 
+
+# Sit, down, wait and look at me
+This is a routine I have now started to do more and more in a variety of settings. Basically whenever it makes sense I use one of these. Particularly I want to get wait and look at me set in stone eventually because these two are so important. Wait is important whenever the dog has a drive it wants to pursue and you want to tell it that it's inappropriate and look at me is basic attention training which is a good habit to have. The perfect temperament in a dog in my opinion is when it asks for permission for everything it wants to do and yet at the same time does whatever is necessary when told to do so. 
+
+[![Video 13 weeks old malinois puppy](https://img.youtube.com/vi/gW-lCZi7Vvw/0.jpg)](https://www.youtube.com/watch?v=gW-lCZi7Vvw)
+
+
