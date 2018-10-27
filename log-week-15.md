@@ -17,3 +17,10 @@ Also I have now been consistently getting her to wait with taking food until get
 
 # Potty training
 The potty training has been going very well now. She is now going only once per night (between 23:30 and 1:30) and then sleeps through the night until around 6-7 oclock the next morning - at which point I take her out and she can pee 2-3 times. This is good - she understands that she has to hold it in. During the day the amount of time is still max 3-4 hours. She barks and runs around when she has to go so this is very clear and easy to see. She is able to adjust how much she drinks and eats in the evening to avoid going potting. Very good.
+
+![sleeping](images/20181025_214620.jpg "Sleeping")
+
+# Deer bones as a tooth brush
+After each meal Alice likes to chew on her deer bones. Specially now at 14 weeks the puppy teeth are starting to fall out. Two top ones have already given way and one of the canines (the one she broke during playing tug at 11 weeks - happy it has finally fallen out without any infections). This period is made easier by the raw bones she gets to exercise her teeth with. 
+
+![raw bones](images/Screenshot_2018-10-27-10-51-34.jpg "Raw deer bones")
