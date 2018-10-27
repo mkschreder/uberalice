@@ -1,6 +1,6 @@
 # Week 14 (13 weeks old malinois puppy)
 
-[![Video from 12 to 13 weeks](https://img.youtube.com/vi/fBrmMHLpnQ4/0.jpg)](https://www.youtube.com/watch?v=fBrmMHLpnQ4)
+[![Video week 14 summary](https://img.youtube.com/vi/2BvzfvtySz8/0.jpg)](https://www.youtube.com/watch?v=2BvzfvtySz8)
 
 This week training more on stay and wait. Specially wait is something that's extremely important to get down now because it provides a regulatory knob for the dogs drives. 
 
