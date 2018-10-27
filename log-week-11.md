@@ -1,4 +1,4 @@
-## Week 10
+## Week 11 (10 weeks old malinois puppy)
 
 This week we continue to focus on socialization. This includes going the tube, traveling to pet store, going by car and in the car cage, climbing in the woods and potty training. 
 
