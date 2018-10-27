@@ -55,6 +55,8 @@ Alice is very good at telling me that she has had enough. Kids do it in a simila
 
 In the end if the dogs skeleton can not cope with as much excercise as the dog wants to be doing it is simply a sick dog and should not be bred. It would be really sad if a puppy can not exercise as much as it wants to. Therefore I'm of the opinion that you should never stop a puppy from running or climbing just because somebody told you the nonsense of 5min of exercise more per day for each month of age. 
 
+![sleeping](images/20180924_131737.jpg "Sleep well")
+
 # Focus on the work
 
 When Alice is a bit older I think it would be really fun to do belgian ring sport with her or something similar. I think while IPO will also be fun to do it is not a sport that is capable of bringing out the full potential of a Malinois dog. I have to admit that I have never competed in any of these sports before so it's all new to me. But as with every single complex project that I have taken on - it is new one day and then in a couple of months it is not new any more. I like learning by doing because it's fun. 
