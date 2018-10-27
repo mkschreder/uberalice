@@ -2,11 +2,11 @@
 
 When we first seen alice at the kennel she was around 7 weeks old. We had originally been considering german shepherd since german shepherds are fantastic dogs and a breed I'm quite familiar with, but after researching the malinois breed it sounded just like the right kind of dog. I mean how can anyone not want a Malinois after watching these videos:
 
-https://www.youtube.com/watch?v=gTpBFYuErzA
-https://www.youtube.com/watch?v=8HLcFZNje_w
+[![video](https://img.youtube.com/vi/gTpBFYuErzA/0.jpg)](https://www.youtube.com/watch?v=gTpBFYuErzA)
+[![video](https://img.youtube.com/vi/8HLcFZNje_w/0.jpg)](https://www.youtube.com/watch?v=8HLcFZNje_w)
 
 And this:
-https://www.youtube.com/watch?v=TtLk8jExiiQ
+[![video](https://img.youtube.com/vi/TtLk8jExiiQ/0.jpg)](https://www.youtube.com/watch?v=TtLk8jExiiQ)
 
 Yes yes sure, a well trained dog with genetics and training can do amazing things. But malinois has that a little bit extra. Maybe it is the adhd mentality of the dog, maybe it is the constant biting (as a form of play), the focus with which even a 9 weeks old puppy follows your hand with the ball or maybe something else. But the general temperament of the dog just feels perfect. The grown up belgian malinois are absolutely adorable.
 
