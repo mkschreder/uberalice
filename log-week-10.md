@@ -48,15 +48,13 @@ Alice also absolutely loves climbing rocks. When there is a bit of dirt on the r
 
 There are various kinds of advice circulating around that say that puppies should not have more than 5min extra walk per month of age and other nonsense. Whoever comes up with such nonsense is probably an overprotective puppy dealer that just does not want their puppies to be over exhausted by owners who can not read their dogs. It does not mean that the advice is any good though. Stonnie Dennis puts it best (into both words and actions) when he explains how the dogs can self regulate in the end of this fantastic video:
 
-https://www.youtube.com/watch?v=fFLH3k9e_Lc&t=249s
+[![video](https://img.youtube.com/vi/fFLH3k9e_Lc/0.jpg)](https://www.youtube.com/watch?v=fFLH3k9e_Lc)
 
 I recommend that if you have a puppy or even an adult dog - watch his videos and absorb his philosophy with regards to dog training. It is really good (I may be totally biased there because I already have the same philosophy as Stonnie in everything I do so I don't need to absorb anything except just saying yes yes true true). But in the end it just means "do with your dog what makes perfect sense". And not letting the puppy excercise until the puppy is a year old just makes no sense at all to me. It is a misguided way to look at a more real worry of not letting the puppy hurt itself while playing - which does make perfect sense and something that one should pay attention to. 
 
 Alice is very good at telling me that she has had enough. Kids do it in a similar way - they would sit down on the ground and cry and tell you that they want you to pick them up. Alice does it by sitting down, grabbing the leash with her teeth and pulling it backwards while looking at me (in the opposite direction from where I want to go) or just refuses to walk from the spot. Sometimes she also refuses to walk if she is too scared and in either case I just pick her up and we continue walking. I let her rest a bit in my arms and then put her down again when she gets a little bit more excited and she runs for a bit more. 
 
 In the end if the dogs skeleton can not cope with as much excercise as the dog wants to be doing it is simply a sick dog and should not be bred. It would be really sad if a puppy can not exercise as much as it wants to. Therefore I'm of the opinion that you should never stop a puppy from running or climbing just because somebody told you the nonsense of 5min of exercise more per day for each month of age. 
-
-![sleeping](images/20180924_131737.jpg "Sleep well")
 
 # Focus on the work
 
@@ -69,6 +67,8 @@ Even though my daily routine is not really set in stone yet, it typically includ
 # Puppies sleep a lot
 
 During the first week Alice has probably been sleeping 16-20 hours a day. She typically sleeps for several hours after each training session and each hike in the woods. Also after we get to the office by tube she sleeps for several hours just internalizing the new experience. 
+
+![sleeping](images/20180924_131737.jpg "Tired puppy")
 
 # List of things I did with the her on week 9
 
