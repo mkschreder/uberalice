@@ -1,5 +1,7 @@
 ## Week 11 (10 weeks old malinois puppy)
 
+[![Belgian malinois 10 weeks old](https://img.youtube.com/vi/KISomWOcrW4/0.jpg)](https://www.youtube.com/watch?v=KISomWOcrW4)
+
 This week we continue to focus on socialization. This includes going the tube, traveling to pet store, going by car and in the car cage, climbing in the woods and potty training. 
 
 A 10 week old puppy is roughtly equal in age to a 3 year old human child. Three year olds can do a lot but mostly in small doses. And every new experience counts and makes the puppy more rounded up baby able to deal with a variety of experiences.
