@@ -1,4 +1,4 @@
-## Week 9
+## Week 10 (9 weeks old malinois puppy)
 
 When we first seen alice at the kennel she was around 7 weeks old. We had originally been considering german shepherd since german shepherds are fantastic dogs and a breed I'm quite familiar with, but after researching the malinois breed it sounded just like the right kind of dog. I mean how can anyone not want a Malinois after watching these videos:
 
