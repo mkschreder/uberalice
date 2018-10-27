@@ -8,6 +8,8 @@ At this point the dog weights slightly over 8kg and is pretty much home clean. I
 
 In terms of experiences, water and escalators (as well as transparent stairways) are something to be trained more. These things in particular are not quite normalized yet. 
 
+![exploration](images/20181004_102238.jpg "Exploring under the sofa")
+
 A very good book I highly recommend is the "[Schutzhund Obedience: Training in Drive](https://www.amazon.com/Schutzhund-Obedience-Training-Sheila-Booth/dp/0966302028/ref=sr_1_3?ie=UTF8&qid=1539074505&sr=8-3&keywords=schutzhund&dpID=21hSYmA0e2L&preST=_BO1,204,203,200_QL70_&dpSrc=srch)". This book is filled with good advice every sentence of the way. A booked truly packed with good advice. Get it on kindle (the link is not even any kind of affiliate link at this point. It would take me too much time to sort out the affiliate stuff and right now I would rather keep writing this post)
 
 # Playing chase in the woods
