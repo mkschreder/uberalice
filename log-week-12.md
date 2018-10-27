@@ -44,6 +44,9 @@ This way the down can be learned from running and it is probably the best way ev
 
 The same can be done with sit. Since she already knows sit and responds well to the verbal command, I can easily try to tell her to sit while the treat is moving away from her. Sitting from motion requires a lot more from the dog than the down and so she has to make the decision to sit and wait - even though the treat is moving away - in order to get the treat. The moment she sits, I bring the treat back to her and give it to her. 
 
+# Lots of rest
+![sleeping](images/20181007_123111.jpg "Lots of rest")
+
 # Key experiences from week 11
 * Going on the escalator
 * Leash training along with sit, stay and down. 
