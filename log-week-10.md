@@ -12,6 +12,8 @@ Yes yes sure, a well trained dog with genetics and training can do amazing thing
 
 # Initial socialization
 
+![lookout](images/20180926_201752.jpg "What the???")
+
 I follow a few system rules with alice. 
 1) she has to be exposed to a wide variety of experiences and do training in all situations
 2) she has the right to say no to training after a prolonged session
