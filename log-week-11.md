@@ -4,6 +4,8 @@
 
 This week we continue to focus on socialization. This includes going the tube, traveling to pet store, going by car and in the car cage, climbing in the woods and potty training. 
 
+![chair](images/20180929_161401.jpg "You took my chair??")
+
 A 10 week old puppy is roughtly equal in age to a 3 year old human child. Three year olds can do a lot but mostly in small doses. And every new experience counts and makes the puppy more rounded up baby able to deal with a variety of experiences.
 
 Something new that I would like to add for this week is search training. I did a little bit of search training with Alice before but it was not nearly as much as I would like. It would be nice to do more training in finding treats in higher grass and generally learning how to continue working with the nose without seeing the treats and keep at it until more treats are found.
