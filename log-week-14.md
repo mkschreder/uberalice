@@ -33,4 +33,8 @@ This is a routine I have now started to do more and more in a variety of setting
 
 [![Video 13 weeks old malinois puppy](https://img.youtube.com/vi/gW-lCZi7Vvw/0.jpg)](https://www.youtube.com/watch?v=gW-lCZi7Vvw)
 
+# Doing this often
+
+[![Video 13 weeks old malinois puppy](https://img.youtube.com/vi/W_d81uTRP1c/0.jpg)](https://www.youtube.com/watch?v=W_d81uTRP1c)
+
 
