@@ -4,6 +4,11 @@ This weeks focus is on jump training (not jumping up when greeting) and sitting 
 
 Also this week I'm focusing on distractions which are irritating to the dog. Examples include: large outdoors brush, vacuum cleaner, baloons (because they pop). Anything we can find. These things need to be associated with something positive such as treats or praise. 
 
+# Deer bones as a tooth brush
+After each meal Alice likes to chew on her deer bones. Specially now at 14 weeks the puppy teeth are starting to fall out. Two top ones have already given way and one of the canines (the one she broke during playing tug at 11 weeks - happy it has finally fallen out without any infections). This period is made easier by the raw bones she gets to exercise her teeth with. 
+
+![raw bones](images/Screenshot_2018-10-27-10-51-34.jpg "Raw deer bones")
+
 # Training to sit without jumping for food
 This exercise involves taking a treat and slowly moving it downwards towards the nose of the dog when the dog is sitting in front of you. If the dog tries to jump and grab the treat you lift it up and then move it down again when the dog sits back down. The dog is only supposed to be rewarded when it sits with all paws on the ground. 
 
@@ -41,7 +46,3 @@ The potty training has been going very well now. She is now going only once per 
 
 ![sleeping](images/20181025_214620.jpg "Sleeping")
 
-# Deer bones as a tooth brush
-After each meal Alice likes to chew on her deer bones. Specially now at 14 weeks the puppy teeth are starting to fall out. Two top ones have already given way and one of the canines (the one she broke during playing tug at 11 weeks - happy it has finally fallen out without any infections). This period is made easier by the raw bones she gets to exercise her teeth with. 
-
-![raw bones](images/Screenshot_2018-10-27-10-51-34.jpg "Raw deer bones")
