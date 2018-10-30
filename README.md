@@ -6,4 +6,8 @@ This is a repository where I describe my experiences when rising a belgian Malin
 
 # About the malinois breed
 
-Here is a good introduction to the breed: https://www.youtube.com/watch?v=dkNzu6CSt8M
+Here is a good introduction to the breed:
+
+[![Belgian malinois](https://img.youtube.com/vi/dkNzu6CSt8M/0.jpg)](https://www.youtube.com/watch?v=dkNzu6CSt8M)
+
+
