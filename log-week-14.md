@@ -28,7 +28,7 @@ When it comes to obstacles I try to keep things safe but not too easy. When we a
 
 I will not be correcting this behavior.
 
-... unzip; touch; strip; finger; mount; gasp; yes; uptime; umount; sleep ...
+... unzip; touch; strip; finger; mount; grep; yes; uptime; umount; sleep ...
 
 # Letting the dog wake you up when it's time to go pee
 At this point it has made more sense to let Alice sleep through the night and wake me up when it's time to go. She is good at doing it now by weeping and jumping on me. So I wake up (what I think) is every single time she does that. So from dividing the night in two I now just let her sleep and take her out first late at night when I go to sleep (sometimes 00:30 or 1 oclock. Then I let her sleep and she wakes me up at 5:00 to go out again. So far she has been excellent at following this schedule so we naturally keep it in place until it is either proven contrary (ie she pees on the floor) or it becomes redundant (ie she sleeps through the night). 
