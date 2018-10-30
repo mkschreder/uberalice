@@ -55,6 +55,7 @@ This is a highly psychological game where the dog only gets your presence and ot
 * Look at me command can be used to keep the dog watching you and not the cage door (thinking about how to take a shortcut and rush out). 
 * As the door has opened, move away from the cage a little (this is to create some distance and further practice wait and look at me). 
 * Then do a recall. She rushes towards me with tail wagging and finally gets the ultimate reward (being close). 
+* If the dog sleeps by the time the confinement time is up, open the door anyway to let her know there is a choice - either remain in the crate or leave. She will most likely continue to sleep in there with the door open. 
 
 The exercise is completed. 
 
