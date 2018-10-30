@@ -66,6 +66,16 @@ This week we have been consistently getting better at stay and wait. I can now w
 
 Also I have now been consistently getting her to wait with taking food until getting a command. I have tested the fact that she actually understands the words by saying random words with the same intonation and she was able to resist taking the chicken until given the comand to go for it. At which point she eagerly ate the chicken placed right in front of her. 
 
+# Improving retreiving
+This dog breed is naturally inclined to retreive because of their very strong prey and pack drives. Prey drive drives the dog to chase and take the ball whereever it lands and pack drive compulses the dog to return back to his pack (his owner). However problems occur when the dog has come close enough to not feel anxious about being away from her owner yet not as close as she should come to drop the ball. She can first return and then drop the ball 2m away and go nosing in the grass, or she can come back with the ball and then bow down with as in soliciting play and then try to make her owner chase her. The desirable behavior is for her to come right to my feet and drop the ball for another round of play. To make the dog understand that she has to come back, drop the ball and wait, this week I'm training her in the following way: 
+
+* Take the ball out of your pocket. Use look command to get eye contact.
+* Hold the eye contact for a while. Throw the ball and say the fetch command. 
+* She runs for the ball, grabs it and is on her way back. 
+* Call her to you (she should know that come means that she will get a reward - in this case it would be treats but eventually it will be another round of fetch). 
+* As she comes to you and drops the ball close to your feet reward her with a handful of treats. 
+* If she does not drop the ball close enough, get eye contact then tell her to grab the ball and come. If she only grabs the ball a little and comes a single step - give a reward. Then quickly extend until she comes all the way and drops the ball close by your feet. 
+
 # Potty training
 The potty training has been going very well now. She is now going only once per night (between 23:30 and 1:30) and then sleeps through the night until around 6-7 oclock the next morning - at which point I take her out and she can pee 2-3 times. This is good - she understands that she has to hold it in. During the day the amount of time is still max 3-4 hours. She barks and runs around when she has to go so this is very clear and easy to see. She is able to adjust how much she drinks and eats in the evening to avoid going potting. Very good.
 
