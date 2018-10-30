@@ -29,12 +29,36 @@ The aim in the game of tug is to emulate behavior of pray that the dog would nor
 
 Therefore the game starts with a lot of energy and then gradually the tug makes fewer and fewer jerks until it finally stops moving. The dog is then told to "out" and should let go of the tug. For the promt let go of the tug the dog is rewarded with another game. Upon the completion of the last game the dog is allowed to simply have the tug and will quickly lose interest in it once it has stopped moving.
 
-# Using confinement for training not to bark
-I'm generally against using confinement when it is used because the owner is simply lazy - such as for example locking the dog up as a way to avoid training it to behave properly around the house and around other people. However I would never hesitate to use confinement when absolutely necessary and also for training. Things that can be trained in confinement is for example the anxiety that the dog feels when she can see her owner but can not come close. Another good use for confinement is when the dog is eating a fresh meaty bone which has not been chewed free of bloody meat yet - which is undesirable to have on the sofa or anywhere else in that state. Confinement serves then as the place where to chew on such bones until they become dry enogh to be taken other places (if at all). 
+# Using confinement to teach emotional self control
+I'm generally against using confinement when it is used because the owner is simply lazy - such as for example locking the dog up as a way to avoid training it to behave properly around the house and around other people. The use of confinement is very psychological and should only be used with a clear goal in mind. Things that can be trained in confinement is for example the anxiety that the dog feels when she can see her owner but can not come close. Another good use for confinement is when the dog is eating a fresh meaty bone which has not been chewed free of bloody meat yet - which is undesirable to have on the sofa or anywhere else when it is highly likely to leave blood stains all over the place. Confinement serves then as the place where to chew on such bones until they become dry enogh to be taken other places (if at all). 
 
-The way I train anxiety this week by using confinement is by putting the dog in the confinement - at this stage she feels pretty used to confiment in the car so she lays down, chews on her bones and perhaps sleeps. Then eventually she becomes anxious (this can be any reason - including wanting to go pee). At this point she starts barking and drooling. I make eye contact and the moment she stops barking and just stares at me I come closer to the cage and sit on a chair looking at her. If she starts to bark then I instantly turn around and start walking away. Then slow down and stop but I do not turn around until the bark stops. When the bark stops I repeat this routine. Pretty quickly the dog realizes that barking scares me off instead of coming closer. After she is quiet for some time I slowly open up the cage and practice wait command - she must remain calm and quiet until told to come. When the door is wide open I say "come" and she rushes out of the cage and greets me. Then we play or go out potty or something else.
+The way I train emotional control this week by using confinement is by putting the dog in the confinement - at this stage she feels pretty used to confiment in the car so she lays down, chews on her bones and perhaps sleeps. If the dog is in drive when put in the confinement she will not just chill out right away. At that point she will bark and show her teeth to let one know how unhappy she is to be there. This is when confinement works even better.
 
-This is how I prefer to use confiment - as a tool to practice skills that are hard to practice without it. 
+* Determine ahead of time how long the confinement will last (30min is usually plenty). 
+* When the door is closed and she still barks just sit beside her and stay calm.
+* If she continues barking then stand up and walk away. 
+* If she is calm then just go about doing something else and leave her there until the timer rings. 
+* When you walk away, two things can happen: she stops barking right away or she continues to bark excessively for a while after you are out of view and then stops. Just stand somewhere where she can not see you and listen. 
+* When she stops barking, show yourself. If barking restarts, walk away again. 
+* If she sits there looking at you then slowly walk towards her. 
+* If she starts barking, turn quickly around and start walking away (slowly is good here because if she stops barking you want to have opportunity to turn around and start walking towards her again. 
+* If she does not bark then sit close to the cage and pet her, give her treats etc. 
+* Then sit still as before. If she starts barking then walk away. 
+* Repeat. 
+
+This is a highly psychological game where the dog only gets your presence and other rewards if she can control her drive and stay calm.
+
+* When time is up, do the same routine to illicit calmness and once you are close to the cage door start unlocking the cage slowly.
+* If barking starts, lock the door and walk away and repeat. 
+* The wait command can be used to keep the dog in position and calm at this point. (I only use wait when there is a clear reward coming. Such as getting out of the cage). 
+* Open the cage door slowly to wide open. The dog should lay in the cage. 
+* Look at me command can be used to keep the dog watching you and not the cage door (thinking about how to take a shortcut and rush out). 
+* As the door has opened, move away from the cage a little (this is to create some distance and further practice wait and look at me). 
+* Then do a recall. She rushes towards me with tail wagging and finally gets the ultimate reward (being close). 
+
+The exercise is completed. 
+
+This is how I prefer to use confiment - as a tool to practice skills that are hard to practice without it.
 
 # Continued training of wait, stay and attention (look me in the eyes)
 This week we have been consistently getting better at stay and wait. I can now walk away at least 5m and Alice does not move towards me but waits for her treat while looking at me. I have achieved this mainly through extending the time between giving her treats and I have also started using popping sound with my mouth very consistently whenever she does something right. This is the same as using clicked but who has a clicker with them everywhere they go?? WHy use clicker when you have a mouth with a tongue inside it? So this has really helped accelerating the progress. 
