@@ -23,3 +23,6 @@ This is a summary of routines as opposed to experiences. For experiences I will 
 * Heel-sit: go into position on the left hand side and sit down facing same way as handler (just introduction to the formal position). 
 * Watch-heel: focused heeling while watching a toy or making eye contact. 
 * Out: let go of the tug when told. 
+
+# Developing a training set
+A training set is a sufficiently randomized set of the behaviors that need to be learned. The reason for randomizing the set is that stochastic learning decouples each routine from the rest and ensures that the dog learns each routine in isolation instead of sequences of routines. A training set is what will be used for the coming weeks to get better at each of the behaviors outlined above. 
