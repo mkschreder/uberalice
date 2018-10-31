@@ -76,6 +76,9 @@ This dog breed is naturally inclined to retreive because of their very strong pr
 * As she comes to you and drops the ball close to your feet reward her with a handful of treats. 
 * If she does not drop the ball close enough, get eye contact then tell her to grab the ball and come. If she only grabs the ball a little and comes a single step - give a reward. Then quickly extend until she comes all the way and drops the ball close by your feet. 
 
+# Dealing with dog chewing on things
+Chewing on certain items is fun, until it starts tasting red curry or jalapeno chili. Fastest way to stop chewing on an item that has already been chewed a bit is to smear hottest pepper on it and let it do the rest. There are dog reppelant sprays too, but chilly is most readily available and cheap (and safe yet amazingly effective). 
+
 # Potty training
 The potty training has been going very well now. She is now going only once per night (between 23:30 and 1:30) and then sleeps through the night until around 6-7 oclock the next morning - at which point I take her out and she can pee 2-3 times. This is good - she understands that she has to hold it in. During the day the amount of time is still max 3-4 hours. She barks and runs around when she has to go so this is very clear and easy to see. She is able to adjust how much she drinks and eats in the evening to avoid going potting. Very good.
 
