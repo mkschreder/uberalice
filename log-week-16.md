@@ -24,5 +24,19 @@ This is a summary of routines as opposed to experiences. For experiences I will 
 * Watch-heel: focused heeling while watching a toy or making eye contact. 
 * Out: let go of the tug when told. 
 
-# Developing a training set
-A training set is a sufficiently randomized set of the behaviors that need to be learned. The reason for randomizing the set is that stochastic learning decouples each routine from the rest and ensures that the dog learns each routine in isolation instead of sequences of routines. A training set is what will be used for the coming weeks to get better at each of the behaviors outlined above. 
+# Goals for coming weeks
+* To train hight courage
+* Introduce simple parts of agility course (no jumps higher than what the dog can jump up to). 
+* Sporadic rewards in order to cement in the behaviors
+* Perfect the Down-stay in order to make seek exercises easier
+* Learn how to seek around obstacles (puppies have a hard time figuring out they have to walk around or under). 
+
+# Introducing agility course
+Agility course is really nothing more than a more formal set of obstacles where higher heights are involved and cool effects can be experienced such as the instability of the swing and going through crooked tunnels. 
+
+Today we went to the agility course and tried all of the obstacles. Alice was able to go through the straight tunnel, struggled a little but went through the slightly crooked one. Climbed up the 'A' ramp (but not down). Climbed on top of and over the swing but got a bit frightened by the downward motion. Climbed up and over the 1m high ramp. Climbed up and froze on the 1.5m ramp yet after enough pacience by herself took one step at a time and finished it. Jumped over small 15-20cm obstacles. 
+
+I can see right away how I should have taken her to the agility course earlier and introduced her to heights more. She is a little aware of heights after learning how to climb metal stairway - but not nearly as much as would be appropriate at this stage. 
+
+# Introducing more distractions
+This week I have also started to accustom her to various noises. A good source of noise is screws dropped inside a plastic bottle. This device makes a hefty amount of noise and the purpose is to gradually accustom the dog to the noise so that commands are obeyed and no fear or aggression is shown towards the noise source. Currently half intensity works for both tug play and feeding. More than that and she starts barking at the noise source - which is not desirable. 
