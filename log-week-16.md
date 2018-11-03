@@ -38,5 +38,19 @@ Today we went to the agility course and tried all of the obstacles. Alice was ab
 
 I can see right away how I should have taken her to the agility course earlier and introduced her to heights more. She is a little aware of heights after learning how to climb metal stairway - but not nearly as much as would be appropriate at this stage. 
 
+# Introduction to protection training
+I do not think that I have seen a more happy dog after she had the chance to get insanely mad at the decoy and really got to experience the situation of threat towards her and her owner, as she saw it, and to play out her role as protecting what is hers. The amount of affection she literally showered me with afterwards was insane. It was as though I was her everything and she would fight with all she has to protect what is hers.
+
+The decoy today was Viorel Scientie. 
+
+[![Protection work](https://img.youtube.com/vi/N9YAEax4yvk/0.jpg)](https://www.youtube.com/watch?v=N9YAEax4yvk)
+
+What I like most about the guy is how he is able to tailor the training to each dog individually. He never goes too far yet is able to percieve the razor edge where the dogs protection drive is the highest and from which point on it may dwindle into submission and fear. He is able to then balance on that edge and build it up gradually so the dog learns to read the situation and have 100% confidence about what it has to do to protect effectively. 
+
+For a puppy like Alice this work is mainly focused at holding her in my arms and getting her to be angry at the decoy who is trying to attack us (but she does not know that it's a game). The scenario plays so well that she literally gets into the duality of emotions where both are polar opposites yet both have insane intensity - rage towards the decoy and love towards her owner. The obviousness of this just has to be experienced. 
+
+Protection work has been the truly missing bit thus far and it is something that is impossible to train properly without a decoy promarily because the dog must feel that it is in the position to protect, it must be 100% certain about what it has to protect (the owner first) and it has to have 100% attention on the threat. There is no way to simulate this situation in a believable way without a skilled decoy because the owner can never play the role of the decoy and the object the dog is trying to protect. The dog would just be uncertain about what it has to protect and it's confidence would go into the mud. But with a skilled decoy it is possible to take ones relationship to ones dog to a whole new level and let the dog experience the extremes of the emotions it is capable of experiencing. This undoubtfully produces a more balanced, smart and stable dog. 
+
 # Introducing more distractions
-This week I have also started to accustom her to various noises. A good source of noise is screws dropped inside a plastic bottle. This device makes a hefty amount of noise and the purpose is to gradually accustom the dog to the noise so that commands are obeyed and no fear or aggression is shown towards the noise source. Currently half intensity works for both tug play and feeding. More than that and she starts barking at the noise source - which is not desirable. 
+This week I have also started to accustom her to various noises. A good source of noise is screws dropped inside a plastic bottle. This device makes a hefty amount of noise and the purpose is to gradually accustom the dog to the noise so that commands are obeyed and no fear or aggression is shown towards the noise source. Currently half intensity works for both tug play and feeding. Noise is gradually increased until the dog pays zero attention to it and is focused entirely at what it is that it should be doing. 
+
