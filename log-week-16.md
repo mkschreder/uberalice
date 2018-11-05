@@ -56,3 +56,16 @@ The aim of protection work is to teach the dog how to differentiate between some
 # Introducing more distractions
 This week I have also started to accustom her to various noises. A good source of noise is screws dropped inside a plastic bottle. This device makes a hefty amount of noise and the purpose is to gradually accustom the dog to the noise so that commands are obeyed and no fear or aggression is shown towards the noise source. Currently half intensity works for both tug play and feeding. Noise is gradually increased until the dog pays zero attention to it and is focused entirely at what it is that it should be doing. 
 
+# Ultimate way to stop leash biting
+Just teach the dog to carry a ball around everywhere! Simple :D
+
+I use a combination of ways though. First I have a leash that is not nice to bite. It is a wire collar followed by a chain. This is not nice to bite 90% of the time. However when Alice does not get enough bite work she wants to bite pretty much everything and that includes the leash. Second way is that I teach her to walk beside me without pulling and without biting the leash. This takes time and gets better as other details get better - such as teaching her to slow down, gain pace, walk beside and pay attention to me by making eye contact. All these skills contribute to better behavior when walking on the leash. The ball also allows grabbing attention when necessary - I can show her the ball and she stares at it as though it was a cat. Then I give her the ball and she carries it around. She has become better at actually holding on to the ball so we can pretty much take our long walks with the ball in her mouth at all times with only minor messups. 
+
+# Calming down a malinois at home - turn the lights down
+Even after Alice get's a lot of physical activity - playing tug, running, jumping, fetching the ball or a frisbee - she can still arive home and just go nuts - running a marathon around all of the furniture at 30km/h. The way I calm her down involves following steps:
+
+* Give her food and a bone after her meal
+* Turn the lights down - turn them off completely if possible
+
+If the lights are on she is wide awake and does her crazy game on the couch where she hides her treats in the couch and then barks at the couch for hiding her treats - pretty much. With lights out she instantly finds a place to lay down and sleeps. Perfect. 
+
