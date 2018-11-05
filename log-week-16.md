@@ -25,7 +25,7 @@ This is a summary of routines as opposed to experiences. For experiences I will 
 * Out: let go of the tug when told. 
 
 # Goals for coming weeks
-* To train hight courage
+* To train high courage
 * Introduce simple parts of agility course (no jumps higher than what the dog can jump up to). 
 * Sporadic rewards in order to cement in the behaviors
 * Perfect the Down-stay in order to make seek exercises easier
@@ -69,3 +69,20 @@ Even after Alice get's a lot of physical activity - playing tug, running, jumpin
 
 If the lights are on she is wide awake and does her crazy game on the couch where she hides her treats in the couch and then barks at the couch for hiding her treats - pretty much. With lights out she instantly finds a place to lay down and sleeps. Perfect. 
 
+# Proper technique for making game of tug fun for the dog
+The game of tug stimulates the dog's prey drive which makes the dog chase the tug and hold on to it. Since tug or any other bite toy that the dog chases and holds on to in this case represents prey, the way to make the game fun for the dog and to teach the dog is to make the tug immitate prey as much as possible. This means the tug should move about like prey, when caught it should try to escape and then gradually it loses it's power and just jerks trying to escape as the dog holds on to it. Then the prey stops resisting and does not try to escape. The dog gets to think he won. 
+
+When the tug is resisting, it is the perfect time to teach the "out" command so that the dog learns to let go of this hightly desirable object on command (and hopefully any other object it ever considers highly desirable as well). When the dog releases the tug she is rewarded by the tug again - the tug comes alive and the dog can grab it again. Psychologically this teaches the dog that it is ok to let go - she can still be confident that the prey will be hers in the end. In the end the dog can run off with the tug and feel proud of catching such a fantastic toy. 
+
+# Introducing tracking
+This week I have been introducing tracking in the following way:
+
+* Go to a grass field where it is easy to lay a simple track without too many distractions
+* Stomp out a square 60x60cm while dropping treats into it - this teaches the dog to associate smell of broken grass with treats
+* Let the dog seek on command inside this square. 
+* While the dog does the seeking in one square, make another one a short distance away
+* Repeat a few times. 
+* Make a track by stomping a line while dropping treats into it.
+* Let the dog repeat this
+
+The biggest issue so far has been her being so excited that she would skip treats on the track. We need to train this more and expand it to normal steps with treats on each step. 
