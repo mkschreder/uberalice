@@ -86,3 +86,10 @@ This week I have been introducing tracking in the following way:
 * Let the dog repeat this
 
 The biggest issue so far has been her being so excited that she would skip treats on the track. We need to train this more and expand it to normal steps with treats on each step. 
+
+# The training program
+This week I put a little bit of thought into how to make the training more systematic. What is important is not so much what to train, but figuring out how to train the most important skills that the dog should have. Also a plan for evaluating the performance. IPO is great for this - but still everything takes place in small steps so having a clear picture of the end result and a plan is important. 
+
+I will be developing the training program incrementally, in a true agile manner, just like this git repository and it will be available here: 
+
+[Belgian Malinois Training Plan From Puppy To Adult](/training-plan.md)
