@@ -57,3 +57,20 @@ Commands are merely a way to communicate with a dog in the most clear and natura
 # Basic triad in motion
 # Go out and stay
 # Search an area (different from tracking)
+# Daily workout (combining everything)
+This consists of a walk down to an open area (such as a field to start with) and doing all three parts of shutzhund - obedience, tracking and some protection work (mainly as play so no real protection). No helper needed so makes the daily workout doable at any time anywhere. 
+
+Required equipment: 
+* A ball
+* A tug or sleeve
+* Treats (possibly cut up weiners for tracking work)
+
+I go out to any nearby field. During the walk I train obedience - heeling during normal leash walk, sitting when meeting people and other dogs, laying down before crossing a street or going out into the open field. Attention any time. To get rid of some of the energy I play a few fetches with the ball. Run around the field, throw the ball in one direction and run in the other. Practice recall and fetch and go get it commands.
+
+After a few fetches I sit her down and go out and lay a track. It does not really matter if the dog sees the track being layed because she will not be able to memorize it anyway. I walk a random track out in the field making sure I do not cross a previous track but walking in a random fashion. I throw a treat in the grass for each step on each treat. That way I associate the smell of steps with treats and teach the dog to track the steps to find treats. Then I go back to her and tell her to track. If there is sufficient distance between portions of the track that turn and twist, she will be able to stay on the track even when it is her first few times doing this. 
+
+When she has completed the track, we play protection and prey game with a tug. I challenge her with it and always practice ethe out, rewarding it with giving her a new opportunity to catch the tug. If she shows desire to fight for the tug and tries to take it from me I let her do it and run off with the tug - but not every time. When she runs off and stops there looking at me I can practice more obedience by telling her to sit. If she sits then I challenge her by going closer and trying to snatch the tug from her - during this time it is nice to practice bark so she barks at me. When she does I reward her by backing off, then going in again. Then I can tell her to lay down and once she does I can give her a few treats. Then I challenge her for the tug again and if she is not quick enough I snatch it and run away. Then stop and freeze, holding the tug high - she must bark to get the tug. When she barks she gets it - eventually having to bark more than once. This is begining of bark and hold. 
+
+The tug game is definitely the most fun to play and this can go on for hours. When we are done playing I finish off any remaining energy in her with more ball fetching - once she starts hesitating to run after the ball I know she is pretty tired so the remaining walk home removes all remaining energy. We take it easy on the way back, she gets to pee and whatever else. We go back and she gets a meal, a bone and then sleeps. 
+
+In total the exercise takes perhaps 2-2.5 hours. 
