@@ -1,6 +1,12 @@
 # 15 weeks old Belgian Malinois Puppy
 This week is going to be a kind of pivotal week summarizing everything learned over the past 6 weeks and practicing it more consistently. It is a kind of very basic consolidation period. New routines may be introduced but they will all build on combinations of old routines and the goal will be to practice old routines thoroughly. 
 
+This includes combining simple behaviors together to achieve slightly more complex behaviors. 
+
+Such as learning door manners: 
+
+[![Belgian Malinois Puppy](https://img.youtube.com/vi/h5xoRR2felo/0.jpg)](https://www.youtube.com/watch?v=h5xoRR2felo)
+
 # Summary of routines introduced during week 9-15
 This is a summary of routines as opposed to experiences. For experiences I will add a separate section below.
 
@@ -93,3 +99,8 @@ This week I put a little bit of thought into how to make the training more syste
 I will be developing the training program incrementally, in a true agile manner, just like this git repository and it will be available here: 
 
 [Belgian Malinois Training Plan From Puppy To Adult](/training-plan.md)
+
+# More habituation
+Do not forget to keep the habituation going. This includes revisiting the experiences introduced during the initial socialization period of 8-12 weeks. 
+
+[![Belgian Malinois Puppy](https://img.youtube.com/vi/E8Kxy26WV08/0.jpg)](https://www.youtube.com/watch?v=E8Kxy26WV08)
