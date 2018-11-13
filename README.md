@@ -5,6 +5,7 @@ Raising A Belgian Malinois Puppy
 This is a repository where I describe my experiences when rising a belgian Malinois puppy named Alice. Malinois are a pleasure to train but do require consistency and a lot of dedication from their owners. 
 
 Here is a playlist of all videos linked to from this repository, week by week (first few videos are crap so skip them): 
+
 [![Belgian malinois](https://img.youtube.com/vi/W_d81uTRP1c/0.jpg)](https://www.youtube.com/watch?v=W_d81uTRP1c&list=PLOqygfz5v1hawka1qnALMBrdocXFgJmDd)
 
 # About the malinois breed
