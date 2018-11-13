@@ -1,5 +1,9 @@
 # Week 15 (14 week old belgian malinois puppy)
 
+Do not forget to have fun.. 
+
+[![Belgian Malinois Puppy](https://img.youtube.com/vi/Naw1YrCABeU/0.jpg)](https://www.youtube.com/watch?v=Naw1YrCABeU)
+
 This weeks focus is on jump training (not jumping up when greeting) and sitting without taking pows off the ground to grab something. I don't really have a name for these exercises but I really like both of them because they teach the dog to stay on the ground even when excited. 
 
 Also this week I'm focusing on distractions which are irritating to the dog. Examples include: large outdoors brush, vacuum cleaner, baloons (because they pop). Anything we can find. These things need to be associated with something positive such as treats or praise. 
@@ -75,6 +79,16 @@ This dog breed is naturally inclined to retreive because of their very strong pr
 * Call her to you (she should know that come means that she will get a reward - in this case it would be treats but eventually it will be another round of fetch). 
 * As she comes to you and drops the ball close to your feet reward her with a handful of treats. 
 * If she does not drop the ball close enough, get eye contact then tell her to grab the ball and come. If she only grabs the ball a little and comes a single step - give a reward. Then quickly extend until she comes all the way and drops the ball close by your feet. 
+
+# First snow
+
+[![Belgian Malinois Puppy](https://img.youtube.com/vi/il3Pxlfc0qU/0.jpg)](https://www.youtube.com/watch?v=il3Pxlfc0qU)
+
+# Search / tracking introduction
+Treats in the woods games.. 
+
+[![Belgian Malinois Puppy](https://img.youtube.com/vi/XbMPylb14LU/0.jpg)](https://www.youtube.com/watch?v=XbMPylb14LU)
+[![Belgian Malinois Puppy](https://img.youtube.com/vi/ddvphIn4jbA/0.jpg)](https://www.youtube.com/watch?v=ddvphIn4jbA)
 
 # Dealing with dog chewing on things
 Chewing on certain items is fun, until it starts tasting red curry or jalapeno chili. Fastest way to stop chewing on an item that has already been chewed a bit is to smear hottest pepper on it and let it do the rest. There are dog reppelant sprays too, but chilly is most readily available and cheap (and safe yet amazingly effective). 
