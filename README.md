@@ -18,6 +18,8 @@ Here is a good introduction to the breed:
 
 [![Belgian malinois](https://img.youtube.com/vi/dkNzu6CSt8M/0.jpg)](https://www.youtube.com/watch?v=dkNzu6CSt8M)
 
+[![Belgian malinois](https://img.youtube.com/vi/3PV1B0OCMY8/0.jpg)](https://www.youtube.com/watch?v=3PV1B0OCMY8)
+
 # My goal with all training
 To produce a dog that willfully behaves exactly as desired in all situations that it can encounter during its lifetime. 
 
