@@ -25,6 +25,8 @@ This is also something that I do not like - and for similar reasons as with pott
 
 This does come with the downside of having to have total supervision of the puppy all day long. Some people can not do this due to various reasons. I think it is a golden opportunity that's being thrown away to train basic skills. Really if you get a dog (specially a dog like a Malinois) consider having her around with you everywhere you go. A dog needs structure and needs to be with her owner as much as possible. You would not leave your toddler alone at home until much later in life. The same is for a dog (like would you really lock up your toddler in a cage and go to work? Or do the same thing at night?). 
 
+An addition to this section should also be that it is at the same time very important to take very opportunity to TEACH that confinement is ok so that the dog can be comfortable in confinement and does not bark. For this reason it is important to balance time 
+
 ## 3 - complete restriction on exercise
 
 Exercise has a lot of positive effects for a dog. It strengthens bones, it burns calories, it sets up metabolism for athletic shape later in life. Exercise early in life is important provided that it is not over done to the extent of getting injured. This last point is perhaps the main reason for why so much blind advice is given with regards to amount of exercise that is give to the dog early in life and the restrictions that people artificially place on the amount of exercise a puppy gets every day.
