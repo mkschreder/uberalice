@@ -9,9 +9,9 @@ Here is a playlist of all videos linked to from this repository, week by week (f
 [![Belgian malinois](https://img.youtube.com/vi/W_d81uTRP1c/0.jpg)](https://www.youtube.com/watch?v=W_d81uTRP1c&list=PLOqygfz5v1hawka1qnALMBrdocXFgJmDd)
 
 # Contents of this repo
-Here are quick links to documents in this repo.
+Here is a quick summary and links to individual posts from each week of training. 
 
-|Chapter|Description|
+|Age|Training summary|
 |-------|-----------|
 |[9 weeks](log-week-10.md)|Initial socialization and habituation. Major variety of new experiences.|
 |[10 weeks](log-week-11.md)|Continued socialization and habituation. Dogs, people, children|
