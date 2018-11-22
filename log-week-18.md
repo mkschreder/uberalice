@@ -59,5 +59,11 @@ The behavior she exhibits when clipping nails is very similar to the behavior sh
 1) let the dog do the behavior but only on command.
 2) challenge the behavior and make the dog stop the behavior on command. 
 
-The reasoning for this is very simple: to not try to shove the behavior under the carpet hoping it will never come out. To instead challenge the behavior and bring it out such that it can be studied better and also handled in the best possible way. It is important to challenge aggressive behaviors and show that the behavior is ineffective at getting what the dog wants - but it is also useful to associate a command with the behavior because it is indeed a natural behavior and so very valuable to not extinguish because it is the true nature of the animal. Also, when the behavior is challenged and the dog is rewarded for stopping the behavior after receiving a command - the dog learns that it is possible to stop the behavior and get a reward in the future. 
+The reasoning for this is very simple: to not try to shove the behavior under the carpet hoping it will never come out. To instead challenge the behavior and bring it out such that it can be studied better and also handled in the best possible way. It is important to challenge aggressive behaviors and show that the behavior is ineffective at getting what the dog wants - but it is also useful to associate a command with the behavior because it is indeed a natural behavior and so very valuable to not extinguish because it is the true nature of the animal. Also, when the behavior is challenged and the dog is rewarded for stopping the behavior after receiving a command - the dog learns that it is possible to stop the behavior and get a reward in the future. When the dog can show the behavior on command then it can be made into a game - played and stopped on command. 
+
+This week I started capturing this behavior and making it a command. As the behavior can be induced on command, I am also able to practice extinguishing it on command. I always prefer to train behaviors in pairs - teaching both the behavior and counter behavior at the same time (like plus and minus).. 
+
+[![Belgian Malinois Puppy](https://img.youtube.com/vi/yw47YwUuahg/0.jpg)](https://www.youtube.com/watch?v=yw47YwUuahg)
+
+
 
