@@ -21,7 +21,9 @@ Here is a quick summary and links to individual posts from each week of training
 |[14 weeks](log-week-15.md)|Introduction to search/tracking|
 |[15 weeks](log-week-16.md)|Introduction to protection work. Door manners.|
 |[16 weeks](log-week-17.md)|More advanced search and tracking. Distance obedience.|
-|[17 weeks](log-week-18.md)|In progress..|
+|[17 weeks](log-week-18.md)|Outs, aggression and more protection training (schutzhund style)|
+|[4 months](log-5th-month.md)|In progress...|
+
 
 # About the malinois breed
 
